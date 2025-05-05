@@ -6,29 +6,66 @@ Want to learn artificial intelligence and save money on your preferred Harvard U
 
 I have listed all available **edX promo codes & discounts** in this article.
 
-## edX Coupon | Get 30% Off
-
-Get a [**30% discoun**t](https://edx.sjv.io/g1EPz5) with this edX coupon code, which offers top-notch courses from prestigious universities and institutions.
-
-## edX Coupon Code: Get 50 Off
+## edX Coupon Code: Get 50 Off [Annually]
 
 With this edX promo code, get [**50% Off**](https://edx.sjv.io/g1EPz5) on a wide range of courses, from data science to business management and everything in between.
 
+[![EDX coupon code](https://github.com/user-attachments/assets/911c46a3-5d64-4aca-87ad-8f5aae6915b1)
+](https://edx.sjv.io/g1EPz5)
+
+With this EDX discount deal, you will get access to
+
+- Offers university-level courses from top institutions like Harvard and MIT.
+- Provides both free and paid certificate options for learners.
+- Supports self-paced and instructor-led learning formats.
+- Includes professional programs and MicroMasters for career advancement.
+
+## edX Discount Code "REFRESHEDX25" To Get 30% Off
+
+Get a [**30% discoun**t](https://edx.sjv.io/g1EPz5) with this edX coupon code, which offers top-notch courses from prestigious universities and institutions.
+
+[![edx promo code](https://github.com/user-attachments/assets/98574b9c-62eb-482b-93ee-85444ce94d8c)
+](https://edx.sjv.io/g1EPz5)
+
+This EDX coupon deal offers you:
+
+- Access to a wide range of subjects, from computer science to humanities.
+- Interactive learning with quizzes, assignments, and discussion forums.
+- Mobile-friendly platform for learning on the go.
+- Courses available in multiple languages for global accessibility.
+
 ## edX Discount Code [40% Off On All Certificates]
 
-Get a [**30% off**](https://edx.sjv.io/g1EPz5) deal on all certificates with this edX discount code. Whether you're interested in project management, digital marketing, or any other field, this discount is a no-brainer.
+Get a [**40% off**](https://edx.sjv.io/g1EPz5) deal on all certificates with this edX discount code. Whether you're interested in project management, digital marketing, or any other field, this discount is a no-brainer.
+
+[![edx certification discount](https://github.com/user-attachments/assets/37992dfe-eae7-47a8-b2d3-e49ef133c64a)
+](https://edx.sjv.io/g1EPz5)
+
+- Integration with LinkedIn to showcase earned certificates.
+- Financial assistance available for eligible learners.
+- Industry-recognized credentials to boost employability.
+- Pathways to full online degrees through partner universities.
 
 ## edX 20% OFF Promo Code
 
 With this [**20% off**](https://edx.sjv.io/g1EPz5) edX promo code, you can get a discount on individual courses that you want to pursue and explore your interests without breaking the bank.
 
+[![Edx discount code](https://github.com/user-attachments/assets/d38ff726-74fe-44cc-93a4-fccebfefaf26)
+](https://edx.sjv.io/g1EPz5)
+
 ## edX Discount Code: Get 10% OFF
 
 Even if you miss out on the bigger discounts, you can still save with a [**10% off**](https://edx.sjv.io/g1EPz5) edX Coupon code. These are often available throughout the year, so keep your eyes peeled for the latest deals.
 
+[![Edx deal](https://github.com/user-attachments/assets/59014da0-c5c4-48af-b09c-60ebfb4a2840)
+](https://edx.sjv.io/g1EPz5)
+
 ## 30% Off Edx Student Discount Code
 
 Get [**30% off**](https://edx.sjv.io/g1EPz5) on edX top-tier plans. Simply verify your student status, and you'll be eligible for exclusive discounts on courses and programs.
+
+[![edx student discount code](https://github.com/user-attachments/assets/52d96b64-d59b-4057-a39e-5530f763dcbf)
+](https://edx.sjv.io/g1EPz5)
 
 ## edX Promo Code [30% Off On Everything] [Expired]
 
@@ -42,25 +79,33 @@ Summer is the perfect time to learn something new, and edX knows it. Last year, 
 
 In a surprising move, edX once offered a 70% off coupon code for their boot camp programs. Unfortunately, this deal has since expired, but it just goes to show the incredible savings you can find on the platform if you're vigilant.
 
-## How Can I Get an edX coupon code? (step-by-step)
+## How Can I Get an edX coupon code?
 
-Ready to start saving on your edX courses?
+Follow these 6 simple steps to claim an EDX promo code.
 
-Here's a step-by-step guide to redeeming those sweet, sweet coupon codes:
+**Step 1:** Visit [**edX.org**](https://edx.sjv.io/g1EPz5) and click on the '**Register For Free** button.
 
-Step 1: Visit [**edX.org**](https://edx.sjv.io/g1EPz5).
+![EDX homepage](https://github.com/user-attachments/assets/8b2f34c8-d703-41b7-bde6-ce400b81ec48)
 
-Step 2: Choose the courses that pique your interest from their course catalog.
+**Step 2:** **Create an account for FREE** by providing the neccessary details.
 
-Step 3: Choose "Request More Information" after entering your information.
+![create an account for free](https://github.com/user-attachments/assets/96946745-5645-49f8-9526-b87c61836ec1)
 
-Step 4: Click Enroll Now if you are happy with the course material.
+**Step 3:** Next, **Explore Courses** and select a course that you want to get certification.
 
-Step 5: Sign up with your email address if you are a new user, and log in if you are an existing user.
+![explore courses](https://github.com/user-attachments/assets/4ddcfccf-5505-4869-bef1-85a9678a7189)
 
-Step 6: An edX code input area will appear on the checkout page. The discount will be applied instantly when you paste the code here.
+**Step 4:** To get certificaiton click on the '**Upgrade Now**' button.
 
-Step 7: Finally, enter your payment details, confirm your order, and start your learning journey!
+![upgrade now](https://github.com/user-attachments/assets/e1b4f6d3-2806-45ea-b35a-5c154427dcb0)
+
+**Step 5:** **Enter coupon code** and see the price dropping.
+
+![enter coupon code](https://github.com/user-attachments/assets/eec2d0c2-4874-422d-b064-b89466ade294)
+
+**Step 6:** Finally, enter your payment details, confirm your order, and start your learning journey!
+
+![place order](https://github.com/user-attachments/assets/d69af8e8-9209-4c8a-88a7-7890a83d09dd)
 
 Well done! You have successfully claimed your edX discount codes and saved $175.
 
