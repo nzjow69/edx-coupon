@@ -173,16 +173,26 @@ With the array of edX coupon codes, promo codes, and discounts available, you ca
 
 ### Can I use multiple edX coupon codes at once?
 
-Unfortunately, no. edX only allows the use of one coupon code per order. However, you can stack other discounts, such as financial aid or military discounts, on top of the coupon code.
+Unfortunately, **no. edX only allows the use of one coupon code per order**. However, you can stack other discounts, such as financial aid or military discounts, on top of the coupon code.
 
 ### When Does the EDX Black Friday Sale Start?
 
-edX Black Friday sale starts on 4th November Annually.
+edX Black Friday sale starts on **4th November Annually**.
 
 ### Can I get a refund if I used an edX coupon code?
 
-Absolutely! As long as you meet the refund policy requirements, you can receive a refund on the discounted price you paid using the edX coupon code.
+**Absolutely**! As long as you meet the refund policy requirements, you can receive a refund on the discounted price you paid using the edX coupon code.
 
 ### Are edX coupon codes valid for all courses and programs?
 
-While most edX coupon codes can be applied to a wide range of courses and programs, some exclusions may apply. Always read the fine print to ensure the code is valid for your desired course or program.
+While most edX coupon codes can be applied to a wide range of courses and programs, **some exclusions may apply**. Always read the fine print to ensure the code is valid for your desired course or program.
+
+### Does edX have a discount?
+**Yes**, edX often offers discounts and promotional deals on their verified courses. You can also use an EDX coupon to save money when upgrading from audit to certificate mode.
+
+### Is there any way to get edX certificate for free?
+Yes, **you can apply for financial assistance** on edX to get a verified certificate for free or at a discounted price. Just fill out the application form available on the course page to check if you're eligible.
+
+### Are edX certificates worth the money?
+**Yes, edX certificates are worth the money** if you’re looking to boost your resume, showcase skills on LinkedIn, or advance your career. They are issued by top universities and institutions, adding credibility to your learning.
+
