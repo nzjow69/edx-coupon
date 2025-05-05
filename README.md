@@ -67,6 +67,12 @@ Get [**30% off**](https://edx.sjv.io/g1EPz5) on edX top-tier plans. Simply verif
 [![edx student discount code](https://github.com/user-attachments/assets/52d96b64-d59b-4057-a39e-5530f763dcbf)
 ](https://edx.sjv.io/g1EPz5)
 
+## edx Coupon Code $100 off [Site-Wide]
+Now, claim [**$100 discont**](https://edx.sjv.io/g1EPz5) on everything on EDX, choose any certification including some of the popular coureses like, computer science courses like CS50's Introduction to Computer Science, and data science related courses like Analytics: Essential Tools and Methods. Business and management courses like Project Management, and those related to digital marketing
+
+[![edx Coupon Code 100 off](https://github.com/user-attachments/assets/5db97182-e541-4e82-9604-11c19296fc4c)
+](https://edx.sjv.io/g1EPz5)
+
 ## edX Promo Code [30% Off On Everything] [Expired]
 
 Did you miss the chance to save [**30% on edX courses**](https://edx.sjv.io/g1EPz5)? Don't worry; these deals tend to come around quite often. Keep checking back for the next big sale, and you might just catch the flat 30% discount before it expires.
