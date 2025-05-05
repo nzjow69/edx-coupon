@@ -160,7 +160,8 @@ Whether you're looking to upskill, explore a new passion, or advance your career
 
 With the array of edX coupon codes, promo codes, and discounts available, you can pursue your educational goals without breaking the bank. So, what are you waiting for? Start exploring edX today and unlock your full potential!
 
-[{Get 50% Off edX Discount Deal}](https://bit.ly/4eVs6WQ)
+[![EDX coupon code](https://github.com/user-attachments/assets/911c46a3-5d64-4aca-87ad-8f5aae6915b1)
+](https://edx.sjv.io/g1EPz5)
 
 ## FAQs On edX Promo Codes
 
